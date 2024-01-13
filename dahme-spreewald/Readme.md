@@ -2,6 +2,7 @@
 
 - [Application Form](https://www.dahme-spreewald.info/sixcms/detail.php/64761)
 - [Appointment](https://www.terminland.de/ab-dahme-spreewald/)
+- Book an Einburgungtest(Naturalization Test) well advanced due to long waiting list. Exam can be given any VHS in the Germany but questions will be according to the state where your rescidence is. For example [Telto Flaming](https://vhs.teltow-flaeming.de/pruefungszentrum/einbuergerungstest) OR [Neukolln VHS]()
 - Photo: Same dimension of our visa photo i.e 55*45
 - [Pension Statement](https://www.eservice-drv.de/SelfServiceWeb/). Submit application online and you will receive it by post.
 - Passport & Blue Card Copy orginal.
